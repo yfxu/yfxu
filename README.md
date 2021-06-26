@@ -1,4 +1,4 @@
-### Hi there 👋
+Hi there!!! I like to make osu! beatmaps pls check them out: https://osu.ppy.sh/users/3214844 
 
 <!--
 **yfxu/yfxu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
